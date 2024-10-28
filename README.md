@@ -1,7 +1,7 @@
-[@levi-ee]:https://github.com/levi-ee
-[@levi_cc]: https://X.com/levi_cc
+TODO :)
 
-# GitHub: [@levi-ee]
-# 𝕏: [@levi_cc]
+[@levi-ee]:https://github.com/levi-ee
+
+GitHub: [@levi-ee]
 
 *By Levi CC*
